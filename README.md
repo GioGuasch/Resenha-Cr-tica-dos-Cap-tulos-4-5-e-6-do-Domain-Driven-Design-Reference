@@ -1,0 +1,1 @@
+# Resenha-Cr-tica-dos-Cap-tulos-4-5-e-6-do-Domain-Driven-Design-Reference
